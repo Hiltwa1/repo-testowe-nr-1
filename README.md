@@ -17,3 +17,5 @@ coś jeszcze dodatkowo
 placki placki placki (zgłodniałem)
 
 i cyk dodatek kolejny za 15 zł
+
+jak za 15zł, to biorę pół
