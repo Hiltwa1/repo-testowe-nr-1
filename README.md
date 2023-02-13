@@ -17,3 +17,5 @@ coś jeszcze dodatkowo
 placki placki placki (zgłodniałem)
 
 i cyk dodatek kolejny za 15 zł
+
+coś nowego
