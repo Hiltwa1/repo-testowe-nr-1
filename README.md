@@ -25,3 +25,4 @@ kierowniku złoty, poratuj placuszkiem
 
 coś nowego
 
+kk 
