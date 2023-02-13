@@ -2,7 +2,7 @@
 
 <<<<<<< HEAD
 
-Autor : Cookr  
+Autor : Cookr / Hiltwa
 
 Lubie placki
 
